@@ -11,7 +11,7 @@ Not: Bu Botları yeterli star gelince paylaşıcam.
 Hatırlatma!
 Botların bir çok Meriaz Yardım Alarak Yaptım
 Botun Özellikler
-Piyasadaki Bir Çok Botdan Kaliteli Rol Dağıtmadan tut taç hesaptan banlamaya kadar hızlı rol dağıtma v.s
+Piyasadaki Bir Çok Botdan Kaliteli Rol Dağıtmadan hızlı rol dağıtma v.s
 
 Botları güncelledikce görsellerini aşağıya yüklicem.
 
